@@ -44,15 +44,18 @@ Descriptive paragraph of how capable you are at this skill and, if relevant, how
 
 ## Experience
 
-**Live Tennis Bettor** (June 2016 - June 2018)    
-*Your job title*  
+**Professional gambler** (June 2016 - June 2018)    
+*Live tennis bettor*  
+
 **Amelco** (January 2015 - June 2016)   
-*Sport Trader*  
+*Sport trader*  
+
 **Sportradar** (August 2012 - October 2014)  
-*Fraud Detection Trading Analyst*  
+*Fraud detection trading analyst*  
+
 **BetClic** (May 2008 - July 2012)  
-*Football Odds Compiler*
+*Football odds compiler*
 
 ## Interests
 - sport: I enjoy playing badminton at a social level and keenly follow football and tennis. I also enjoy running and have completed several half-marathons.
-- travel: Having lived in Gibraltar for 18 months, I had the opportunity to visit many places in the Andalucia region, Spain. I also spent December 2017 travelling - 2 weeks in Thailand and 2 weeks cycling through Vietnam, covering approx 600km.
+- travel: Having lived in Gibraltar for 18 months, I had the opportunity to visit many places in the Andalucia region, Spain. I also spent December 2017 travelling - 2 weeks in Thailand and 2 weeks cycling through Vietnam, covering approximately 600km.
